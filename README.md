@@ -1,1 +1,1 @@
-![2020-07-22-235647_1920x1080_scrot](https://user-images.githubusercontent.com/45566380/88233855-85229780-cc78-11ea-98c2-2669e51f6b56.png)
+![Screenshot at 2020-08-01 22-50-27](https://user-images.githubusercontent.com/45566380/89110276-80649d00-d449-11ea-8b86-bb4c71a11455.png)
